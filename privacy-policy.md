@@ -116,7 +116,7 @@ We may update this Privacy Policy from time to time. We will notify you of mater
 
 If you have questions about this Privacy Policy or your data, contact us at:
 
-**Email:** potterd123@gmail.com
+**Email:** busyauth@gmail.com
 
 ---
 
