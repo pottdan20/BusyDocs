@@ -129,7 +129,7 @@ These Terms are governed by the laws of the United States. Any disputes shall be
 
 If you have questions about these Terms, contact us at:
 
-**Email:** potterd123@gmail.com
+**Email:** busyauth@gmail.com
 
 ---
 
